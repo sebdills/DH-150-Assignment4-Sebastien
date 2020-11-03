@@ -35,7 +35,6 @@ Link to Full Interview:
 https://drive.google.com/file/d/1re15c6jREMkAtjs-pOzqgLq-9qOdTNRE/view?usp=sharing
 
 Link to Interview Questions: 
-
 https://docs.google.com/document/d/13cxqnhkZWIs1_x7eTciMW4r2nGe94q8GP7pOc42yAyI/edit?usp=sharing
 
 ## Quotes From Interview
