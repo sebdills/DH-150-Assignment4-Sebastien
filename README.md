@@ -44,12 +44,12 @@ Speaker 2: Generally speaking, I've definitely been online shopping a lot more s
 pandemic than before the pandemic flu.
 
 00:04:40
-Speaker 2: No, I would occasionally drift before the pandemic, but since the pandemic I have
+Speaker 2: No, I would occasionally thrift before the pandemic, but since the pandemic I have
 not been.
 
 00:04:54
 Speaker 2: I guess it’s because. Of the cleanliness of clothing going to the store in industry,
-the pandemic and everything, I&#39;d rather purchase something new.
+the pandemic and everything, I'd rather purchase something new.
 
 00:12:11
 Speaker 2: Well, honestly, I feel like that I;ll probably shop here again. I wish I got more
